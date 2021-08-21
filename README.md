@@ -19,4 +19,4 @@ Home Page > View all Users > Select and View one User > Transfer Money > Select 
 
 HOSTING PALTFORM --> 000Webhost
 
-Contact:https:https://www.linkedin.com/in/momina-shahid-377aa1212/
+Contact:https://www.linkedin.com/in/momina-shahid-377aa1212/
